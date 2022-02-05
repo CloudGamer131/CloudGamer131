@@ -4,7 +4,7 @@
 - 👀 I’m interested in Coding and Helping Other on How to Code
 - 🌱 I’m currently learning Node.js
 - 💞️ I’m looking to collaborate on discord
-- 📫 How to reach me 
+- 📫 How to reach me: The best way is to join my discord\ 
 
 Discord: https://discord.gg/7Ra4P54XYs
 
