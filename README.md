@@ -6,4 +6,4 @@
 - 💞️ I’m looking to collaborate on discord
 - 📫 How to reach me: The best way is to join my discord\ 
 
-Discord: https://discord.gg/7Ra4P54XYs
+Discord: https://dsc.gg/thehangout2021
