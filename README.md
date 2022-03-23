@@ -6,4 +6,8 @@
 - 💞️ I’m looking to collaborate on discord
 - 📫 How to reach me: The best way is to join my discord\ 
 
-Discord: https://dsc.gg/thehangout2021
+Discord: https://dsc.gg/seen-development
+
+AngelBot: https://dsc.gg/angelbot22
+
+AngelMusic: https://dsc.gg/angelmusic
