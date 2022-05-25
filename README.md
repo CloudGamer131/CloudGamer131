@@ -8,6 +8,4 @@
 
 Discord: https://dsc.gg/seen-development
 
-AngelBot: https://dsc.gg/angelbot22
-
-AngelMusic: https://dsc.gg/angelmusic
+AngelBot: https://dsc.gg/angelbot1
